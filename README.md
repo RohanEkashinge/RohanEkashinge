@@ -23,7 +23,7 @@
 
 - 📫 How to reach me **ekashingerohan01@gmail.com**
 
-- 📄 Here is my resume :  [view](https://drive.google.com/file/d/1FT7EiqQPFYlrHwcDDt23-oHopfL67Wf0/view)
+- 📄 Here is my resume :  [view](https://drive.google.com/file/d/10Y24y1WFpiqC92dQ1bfqGypg-pJhNPt1/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
